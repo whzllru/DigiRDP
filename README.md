@@ -1,4 +1,4 @@
-# 2024 Latest DigiRDP Coupon Codes - Organized Summary of DigiRDP Deals
+# 2025 Latest DigiRDP Coupon Codes - Organized Summary of DigiRDP Deals
 
 ## DigiRDP Introduction
 Hello Everyone! Some of you may know us, DigiRDP, an LLC incorporated in Wyoming since August 2019. We primarily focus on premium Windows VPS/RDP service and now offer the most affordable Linux VPS. We own all our equipment in the USA and a significant portion in Europe and Asia.
